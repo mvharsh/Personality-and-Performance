@@ -42,3 +42,5 @@ Based on these findings, the study concluded that personality traits are signifi
 - Openness and conscientiousness were found to be positively related to academic performance
 - Neuroticism was found to be negatively related 
 
+DRIVE LINK OF PDF : [Click here](https://drive.google.com/file/d/1OvbSyj0y0J8hu8t0aVyOYf_jWZ8odiEQ/view?usp=drive_link)
+
